@@ -1,0 +1,1 @@
+Financial graphs and charts are visual tools that allow companies to monitor various performance metrics in areas such as liquidity, budgets, expenses, cash flow, and others. By doing so, they can successfully manage risks to ensure healthy finances and steady growth.
